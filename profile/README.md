@@ -1,4 +1,4 @@
-## Niaje niaje 👋🏼👋🏽
+## Habari yako 👋🏼👋🏽
 
 # Web development, African Style 👩🏽‍🦱🧑🏽‍🦱👨🏾‍🦱
 
